@@ -2,4 +2,4 @@
 
 ## This is my personal Github profile
 
-🙌🫵👌👀
+🙌👌👀
